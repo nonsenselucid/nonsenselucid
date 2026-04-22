@@ -1,16 +1,16 @@
-## Hi there 👋
+<p align="center">
+  <img src="https://i.pinimg.com/736x/20/4d/68/204d68881cceefd072e9c8af1f763bb1.jpg" width="600">
+</p>
+I’m neither overly accommodating nor unnecessarily difficult. I operate on basic respect—especially when it comes to my personal boundaries. If you overstep, even once, don’t expect leniency. You’ll be blocked or permanently blacklisted without hesitation.
 
-<!--
-**nonsenselucid/nonsenselucid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+Originality matters. I have zero tolerance for imitation—my style, my identity, or anything that belongs to me or my circle. If I catch even a hint of plagiarism or mimicry, consider that your final warning, because I won’t address it twice.
+
+
+
+                                                                              
+I can be composed and civil, but I’m just as capable of being blunt and unapologetically direct. My tone adapts to the situation—so don’t test which version you’ll get.
+                                                                              
+As for how you address me, keep it natural. I’m not concerned with formalities or titles. Just don’t be disingenuous.
