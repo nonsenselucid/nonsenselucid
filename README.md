@@ -1,7 +1,7 @@
 <p align="center">
   <img src="https://i.pinimg.com/originals/b3/b2/90/b3b290f12408d4bab6b6964809c32f0e.gif" width="600">
 </p>
- VIE/CN ^^. eng is ok |
+ VIE/CN . eng is ok |
   20 yo, 2006
 
 
